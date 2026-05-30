@@ -1,1 +1,0 @@
-# Movimiento-Parab-lico
